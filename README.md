@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @anitaparihar1
-- 👀 I’m interested in Scienc
+- 👀 I’m interested in Science.
 
 
 
